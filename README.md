@@ -5119,7 +5119,2128 @@ power
 
 
 
+Gmail	tshingombe fiston <tshingombefiston@gmail.com>
+Appeal statement result .award degre diploma certificate n engineering studie
+tshingombe fiston <tshingombefiston@gmail.com>	Mon, Feb 12, 2024 at 11:03 AM
+To: tshingombe fiston <tshingombefiston@gmail.com>, tshigombekb@gmail.com, maraba.a@dhet.gov.za, "lundt.s@dhet.gov.za" <lundt.s@dhet.gov.za>, tena.m@dhet.gv.za, lutuka.m@shet.go.za, president@presidency.gov.za, esther.rammultla@dst.gov.za, modiba.d@dhet.co.za, dmandaha@csir.co.za, callcentre@dhet.gov, careerhelp@dhet.gov.za
 
+Application 
+
+Ref :Applications letter   number : 2023/1226
+
+____________________________________
+
+ADRESS:PRIVATE BAG X 174 ,PRETORIA 0001
+
+123 FRANCIS BAARD STREET PRETORIA
+
+TEL:0123235618
+
+______________________________________
+
+ENQUIRY NUMBER: 
+
+DHET : 
+
+DOCKET NUMBER  :2023/1226
+
+INFORMATION MANAGEMENT SYSTEM 
+
+- INSTITUT COLLEGE NAME :ST PEACE COLLEGE
+
+-ID: NUMBER: TIRC0G000910610
+
+-REGISTRATION NUMBER: STUDENT  -CO70040101099
+
+-SARS VAT NUMBER: 923228238
+
+-MERSETA : 17_QA/ACC/1311/17
+
+-SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382.
+
+-email adress: tshingombekb@gmail.com
+
+-Alternate email address: tshingombefiston@gmail.com
+
+ 
+
+ 
+
+________________________________________
+
+APPEAL DECISSION  RESULT RELEASE:
+
+APPLICATION NUMBER:
+
+Saqa: institut foreign .saqa transcription meeting  71638 dr congo requirements  grasuate award diploma nqf  .high certificate no meeting .leave school .expended assessments  .exam  d etat diploma .certificate  professionek .certificate informatics mathematicsvoffics  ; result outcom  primaryb status registration saqa asset 09121 .saqa institut 30_ 39 nc assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+
+ .n diplomat 
+
+-Qualification title national N diplomat  engineering. 
+
+-nqf level:6 .
+
+-date submitted to dhet :1105/2023
+
+-date  process .
+
+DHET 
+
+-Timebtable /50111002 
+
+-N1:engineering studie
+
+-ID:2004007064381
+
+-ID:2100002023812
+
+ 
+
+________________________________________
+
+Dear .mr minister of education dhet and deputy member of dhet .tvet college examination directorat and authority competencies. Governments  president 
+
+I' mr tshingombe tshitadi ;acknowledge student st peace college candidat examination career student follow course in duty of nated in rsa 2019 to 2024 ,  i 'm appear  to your department goverment institution  for allegation view no result of statement id candidat engineering  n1.,n2, n,3,n4  ,n3 and n diplomat  saqa outcom in irregularity  final n5.n6  /nqf 6.
+
+ examination national examination was not delivery in the time  external assessments  commited irregularities. 
+
+ 
+
+1.my motivation and disciplinairy assessment submitted my portofolio on line portal dhet release resultat statement and finalized award diplomat by examination commited irregularityb november invalide subject n3 trade theory electricakbtranscript  the result of assessment was note release reson irregularity n3.subject n4 .subject fail druip result february 2022 .directorat assessment  trascript material .statement affidavitsubmitted st peace college registrar shalom technical and afric instirut college  no result outcom .after 15 days was result scaling n1.n2.n3but statement didint come out not print out by registrations resonement inconveniant. Arbitrary irregularity on february i submitted topics saqa qcto dhet email result of saqa documentation; filing dbe dhet .the commited was under investigation  soon to finalyse .
+
+ 
+
+2. I received to dhet committed assessment  examinations  irregularities the retain
+
+, invalide subject 23 february 2022   the time table of n3 subject admnistration exam with those subject trade . electrical trade theory .4 subject november 2023 examination  rhe result statement  for last examination was not print outcome  n1.n2 submited n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations november  suspension is 11 month for irregularity .follow tvet guideline assessment. Exam over the date insurence body frameworks qualification and labour department  uif coud claim no outcom in career portal was outcom granted  national fund skill for extra subject topics irregularity rwiten qcto practical was not granted  scope portal research qcto .
+
+3.allegation result statement  retain dhet .;saqa n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma icass years college in my portofolio submitted on line marked exam n5.n6.subject additional assessment information  by institution isat icass.
+
+Ref outcome saqa result
+
+16 jan 2023 on line marischen masoga  send submission number  foreing instirut inquirie 9370.
+
+Foreign institutions inquiries 6594
+
+Section 29(a)policy criteria saqa nqf amanded march 2017 institut ...framework nqf  foreign award must meet  for recognise.
+
+Saqa accepted only qualifications  official examination body country ..external examination based , 26 july 2022.
+
+4.allegation to qcto retain on ; saturday22 january 2022. ; with regard  n certificate  direction  dhet education training (for n4_n6 n diploma or umalusi n3 can not assist with qcto issued  
+
+Sat ..10 march 203 qxto .certificate@qcto.org.za  answer soc please note that the qcto does not issue any of results 
+
+-lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit  they will be able to rspond to accorlingly regardc
+
+Qcto  khuluvhe  labour market intelligences  lmi esteemed stakeholder  21 aug 2023 was not grante
+
+ 
+
+- i receiving   Allegation to saqa retain on.10 march 2023  procedure for evaluatiin  pro forma invoice .copy id passport.copy final award graduation certificate. Copy of completed transcript mark sheet academic record.proof payment   if not meetings requirements can resubmitted again.non compliant; 27 july 2021 application above doe s not meet saqa 
+
+Final award school diploma degre certificate in 48h .
+
+-that my requested letter to the authority minister for my result statement certificat  over the date review n diploma 24 month.18 month nated examination  to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurence investigation result center assessment  outcome  years icass total tvet  for my instirut st peace college institu  and externsl certificate n1.n3  afric training institut and shalom technical  collection  print out was not in my application for diploma response from dhet  submitted to resolve conflic assessment examination. 
+
+ 
+
+- your sincerly .
+
+Sign :Tshingombe Tshitadi 
+
+_________________________________
+
+ 
+
+An.n3 .in the relevant specialization area  communication nqf level 4 in language teaching ..theoretical knowl2 and practical skills required and learning of institution offering . To be award the award qualification  learners are to choose  complete .business studie 0.5 years business studies .
+
+.N4 o.5 years duration  60 cresits ..n5 (0.5 year duration )60 credit .n6 . 0.5 years duration  60 . 18 month practical .in casev years duration  engineering  studies .n4 ( 0.33 years duration) 40 creditb. N5 (0.33 years duration ) 40 credits .N6 ( 0.33 year duration) 40 credit ..24 momts practical  experience.
+
+N diploma  360 credit  .180 awarded to experiential training  business studie ..programme code n diploma engineering  studie .electrical engineering. NQF qualification ID: 90674 .national engineering  studies electrical engineering. NQF level 6; 360 credit credit . Saqa learning  programme . N .
+
+ 
+
+ 
+
+ 
+
+ 
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+
+Wed, Feb 7, 9:29 PM (5 days ago)
+
+	
+
+
+	
+	
+	
+
+to tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, registrarphei, me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Appeal .process  academics
+
+Section
+
+-Student Name:tshingombe tshitadi
+
+-Qualification : saqa record academic institution name: foreign .st peace
+
+ -college name: st peace college
+
+-Year of graduation:2020 to 2024 
+
+:management system information academic year: policy dhet ..policy number: saqa cat yet 
+
+Policy st peace college quality system manage qms
+
+.lms 
+
+- referral registrar attandance  :Record   irregularities material transcript and script submission statement and evidence years 2022   ,11 months   feb 2023   register roll  academics college basic and advance  nqf policy criteria 
+
+_______________________________________
+
+1.Letter  record academic and transcript academic :
+
+Consenting :asking to provide detail fir reasin course attended topics  mark earner apply and refistrar keepinf  record
+
+ 
+
+ .-FROM:TSHINGOMBE TSHITADI 
+
+ 
+
+   TO: THE DHET DEPUTY MINISTER  .               MEMBERS OF ACADEMIC RECORD 
+
+ 
+
+    SAQA  AND COLLEGE RECTORAT INSTITUT 
+
+SUB : Dear : my name is  tshingimbe and i attended event from to  in there rwite to request for my transcript  to apply for futher aduation i wish to express my sincer gratitude to your education  i wish to express  my sincer gratitude to your dhet college  thing which have helped me in my  profession. I wish to take studies at  foreign institut saqa and college education advanced  field continuing assessment professional  institution  has requirements  a full transcript from my former studies to check my eligibility  to studie the course i hope saqa to start my studie on and the dealnje to submit the the requested  document  is kindlt send the transcript  at your earliest so that i  an submjt the documents on time i herbrey provide my student identif6 number end of birbe you access my file quickly  kindlt send the transcrip to my home please t .
+
+-in effect of irregularities transcript material februarie 2022 need submission statement  dhet  full  completion  and finalise marks  out term  that honor for me to be part of this excellent  institution  since mention period feel proud and privileges  to informer that due to the high standards  of education  imported by this institution  secure institution  workplace soon noining process i would be great ful to you if you colomb sending  me the requested do i graduation  years .
+
+I hereby  requested  foil transcrip i eas students in journes from i graduate  alumn of estemed successful career engineering  experience cvs  on line student  research. 
+
+ 
+
+-----------------------------------------------------------
+
+Section  : 
+
+Ref:  to maintaining  record of academic  achievement  dhet .st peace college  in saqa in order to  maintaining  acurate system  student record lesson transcript  student .
+
+-student record : attendance  dhet and nated  years  and saqa years entry national frameworks qualification award degre diplomat  graduation. Enrol course in st peace college. 
+
+-academics  performance record keep track ..studdnts progress formal and informal assessment .portofolio
+
+Topics system 
+
+-Authors :tshingombe tshitadi: loyality 
+
+ research papper college system. Management 
+
+-methodology: description login  topics and research topic college'son lines admnito upload information  stuent to view marks exam .
+
+-advantages :the software verifications on line topics in trade national examination informal and  poe s  icass submitted on line  framework qualification.nqf submittedinformationsuplementairy need to be record earn reward hondstly ..
+
+Result procdssing collegd need to try  again and consol inspector information  management systems
+
+-consol textbooks  n1,n6 permit consol fire script  audit material exam scan over the time dowload need to be record  registration storage restoration 
+
+- registrar next stepped  record keeping earn reward honestly  intellectual  value credit challenges  loyal compensation  nated body frameworks qualification  textbook cooking amandment pay  information need reward return on line microsoft database system collection  and record process casebook bsaqa book  examination topics  .reward need amandment R5000 copyright textbook exam papper exam submitted need to returned explanation  .textbook olding reviewers  retrieview  answering exam papper need to be recording  because studets topics framework challenge textbook answering textbook dissertation  on line consol result statement. 
+
+Thank u for sincerely. 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Weighting of courses  
+
+ Certificate  engingering studie  / n diploma engineering 
+
+Course in circulum
+	
+
+Weighting of courses
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Engineering  drawing                     n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics n1
+	
+
+ 
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics                                 n1
+	
+
+ 
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+
+Industriel  electronics                    n3
+	
+
+ 
+
+Electronical  trade  theory             n3
+	
+
+ 
+
+Enginering  science                         n3
+	
+
+ 
+
+Electro- technology                         n3
+	
+
+ 
+
+ 
+
+-Industrial  orientation                     n3
+
+-plant operation theory                   n3
+
+-electro –technology                        n3
+
+-electrical trade theory                    n3
+
+ 
+
+ 
+	
+
+ 
+
+Electrotechnichnics  n4
+	
+
+ 
+
+Industrial electronics n4
+	
+
+ 
+
+Enginering  science  n4
+	
+
+ 
+
+Mathematics   n4
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+Certificate
+
+Courses in
+Curriculum
+	
+
+Census day
+enrolments
+
+	
+
+Credit value of the
+course
+
+	
+
+FTE student
+Total
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Engineering  drawing                     n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics                                 n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industriel  electronics                    n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electronical  trade  theory             n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Enginering  science                         n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electro- technology                         n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+ 
+
+-Industrial  orientation                     n3
+
+-plant operation theory                   n3
+
+-electro –technology                        n3
+
+-electrical trade theory                    n3
+
+ 
+
+ 
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrotechnichnics  n4
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+Industrial electronics n4
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+Enginering  science  n4
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+Mathematics   n4
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Subjects/ course circulum
+	
+
+weight
+	
+
+Scale topic/ tot
+
+COMPLETED
+
+YEARS / HOMEWORK
+
+ CLASS WORK
+
+ 
+	
+
+credit
+	
+
+N
+
+Diploma
+
+Nqf
+
+360 credit
+
+360
+
+Industrial  electronics                    n1
+	
+
+-           
+	
+
+100% ; 100%
+	
+
+0,30
+	
+
+y
+
+Engineering  drawing                     n1
+	
+
+-
+	
+
+100 %; 100%
+	
+
+0,30
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+-
+	
+
+100%;   100%
+	
+
+0,30
+	
+
+ 
+
+Mathematics n1
+	
+
+ 
+	
+
+100% ; 100%
+	
+
+0,30
+	
+
+ 
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+0,30
+	
+
+ 
+
+Industrial  electronics                    n1
+	
+
+-,-
+	
+
+100% ;  100%
+	
+
+0.30
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+-,-
+	
+
+100 %;  100%
+	
+
+0.30
+	
+
+ 
+
+Mathematics                                     n1
+	
+
+-,-
+	
+
+100%;   100%
+	
+
+0,30
+	
+
+ 
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+Industriel  electronics                    n3
+	
+
+ 
+	
+
+100%;  100%
+	
+
+0.30
+	
+
+ 
+
+Electronical  trade  theory             n3
+	
+
+ 
+	
+
+100%; 100%
+	
+
+0,30
+	
+
+ 
+
+Enginering  science                         n3
+	
+
+ 
+	
+
+100%;  100%
+	
+
+0.30
+	
+
+ 
+
+Electro- technology                         n3
+	
+
+ 
+	
+
+100%,100%
+	
+
+0.30
+	
+
+ 
+
+ 
+
+-Industrial  orientation                     n3
+
+-plant operation theory                    n3
+
+-electro –technology                         n3
+
+-electrical trade theory                    n3
+
+ 
+
+ 
+	
+
+ 
+
+ 
+
+48%
+
+19%
+
+55%
+
+27%
+	
+
+ 
+
+ 
+
+100%  ;148%
+
+100%  ;119%
+
+100%  ;155%
+
+100%  ;127%
+	
+
+ 
+	
+
+ 
+
+Electrotechnichnics                           n4
+	
+
+18%
+	
+
+100%  ;118%
+	
+
+0.30
+	
+
+ 
+
+Industrial electronics                       n4
+	
+
+19%
+	
+
+100% ;119%
+	
+
+0.30
+	
+
+ 
+
+Enginering  science                           n4
+	
+
+35%
+	
+
+100% ;135%
+	
+
+0.30
+	
+
+ 
+
+Mathematics                                        n4
+	
+
+30%
+	
+
+100% ;130%
+	
+
+0.30
+	
+
+ 
+
+ 
+
+Sub  total credit qualifie  
+
+Award certificate diplomat
+	
+
+ 
+
+251%
+	
+
+ 
+
+1900 %; 1751%
+	
+
+ 
+
+ 
+
+0.30x16
+
+ 
+	
+
+ 
+
+ Irregularity   final  mark 
+
+Subject : n3,n4,n5,n6
+
+Scrip material evidence low assessment
+
+Progress marker
+	
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+N3   final certificate
+
+ 
+
+Electronical  trade  theory                n3
+	
+
+-
+	
+
+ 
+
+ 
+
+100%  ,100%
+	
+
+ 
+
+ 
+
+0.30
+	
+
+ 
+
+Electrotechnichnics                            n4
+	
+
+-
+	
+
+100% ;  100%
+	
+
+0.30
+	
+
+ 
+
+Industrial electronics                         n4
+	
+
+-
+	
+
+100% ; 100%
+	
+
+0.30
+	
+
+ 
+
+Enginering  science                             n4
+	
+
+-
+	
+
+100%  ; 100%
+	
+
+0.30
+	
+
+ 
+
+Mathematics                                          n4
+	
+
+--
+	
+
+100% ,   100%
+	
+
+0.30
+	
+
+ 
+
+Electrotechnichnics                            n5
+	
+
+-
+	
+
+100% ,  100%
+	
+
+0.30
+	
+
+ 
+
+Industrial electronics                         n5
+	
+
+-
+	
+
+100% ;  100%
+	
+
+0.30
+	
+
+ 
+
+Enginering  science                             n5
+	
+
+-
+	
+
+100% ;   100%
+	
+
+0.30
+	
+
+ 
+
+Mathematics                                         n5
+	
+
+-
+	
+
+100% ;  100%
+	
+
+0.30
+	
+
+ 
+
+Electrotechnichnics                            n6
+	
+
+-
+	
+
+100% ;   100%
+	
+
+0.30
+	
+
+ 
+
+Industrial electronics                         n6
+	
+
+-
+	
+
+100% ;  100% 
+	
+
+0.30
+	
+
+ 
+
+Enginering  science                             n6
+	
+
+-
+	
+
+100% ;   100%
+	
+
+0.30
+	
+
+ 
+
+Mathematics                                          n6
+	
+
+-
+	
+
+100% ;  100% 
+	
+
+0.30
+	
+
+ 
+
+Total  rate 
+
+ For certificate
+
+ Full tie equivalente
+	
+
+ 
+	
+
+1300% +1800;
+
+ 1300+1751
+
+3051 %
+	
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+1900
+	
+
+0,30 X 29
+
+=9,57
+
+ 
+	
+
+ 
+
+PRATICAL PANEL WIRING
+
+ELECTRICAL   ,
+
+PLUMBING 
+
+ 
+
+Total   
+	
+
+ 
+	
+
+100%
+
+100%
+
+ 
+
+ 
+
+200%
+	
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+Total   pratical  theorethical euivalent
+
+N diploma engineering electrical value
+
+Record academic 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+
+ACREDITTION N DIPLOMA ,
+
+ ID  67109 N ,  N1   ID 673575.N3  ID  66881, ID  66960, ID  67005
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Required information
+	
+
+Submitted yes not
+	
+
+Institut comment
+	
+
+For officer only
+
+Annuel report form
+	
+
+yes
+	
+
+Good years
+
+Award  
+	
+
+ 
+
+Termination of agreemnt with othor institut
+	
+
+yes
+	
+
+Good years
+
+Award  
+	
+
+ 
+
+The disclosure certificate as issued by
+the CIPC for Directors who have
+	
+
+yes
+	
+
+Good years
+
+Award  
+	
+
+ 
+
+- INSTITUT COLLEGE NAME :ST PEACE COLLEGE
+
+-ID: NUMBER: TIRC0G000910610
+
+-REGISTRATION NUMBER: STUDENT  -CO70040101099
+
+-SARS VAT NUMBER: 923228238
+
+-MERSETA : 17_QA/ACC/1311/17
+
+-SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382
+	
+
+Yes
+
+Yes
+
+Yes
+
+Yes
+
+Yes
+
+Yes
+
+Yes
+
+yes
+	
+
+Good years
+
+Award  
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+	
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+On Fri, Feb 9, 2024 at 1:56 PM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+    I,_____________________ (STUDENTNAME), __tshingombe _______________(STUDENT
+    NUMBER), am fully aware that the programme I have enrolled on, that is, the Bachelor of
+    Arts (FULL TITLE OF PROGRAMME/QUALIFICATION) with SAQA ID:
+    _n diploma engineering electrical ___________________ (SAQA/QUALIFICATION ID), is registered with the
+    Department of Higher Education and Training to ____st peace colllege _______________ (NAME OF
+    INSTITUTION), as indicated on the registration certificate dated _2020_____________
+    (DATE ON CERTIFICATE). The declaration must be signed by both parties and dated.
+    A sample copy of the declaration signed by students must be attached. Copies signed by
+    students will be requested from the institution if and when the need arises
+
+    listed below. Fill in this form and submit it with your annual report.
+    REQUIRED
+    INFORMATION
+    SUBMITTED
+    YES / NO
+    INSTITUTION’
+    S COMMENTS
+    FOR OFFICE
+    USE ONLY
+    Form APX-03:
+    Annual Report Form
+    Annexure A:
+    Articles of Association as issued by
+    the Companies and Intellectual
+    Property Commission (CIPC)
+    Annexure B1:
+    The disclosure certificate as issued by
+    the CIPC for Directors who have
+    resigned
+    Annexure B2:
+    The disclosure certificate as issued by
+    the CIPC for Directors who have been
+    appointed
+    Annexure C:
+    The letter from the Chairperson of the
+    Board
+    Annexure D:
+    Registration certificate as a Private
+    College issued by the Department.
+    Annexure E:
+    Auditor’s report on student data
+    Annexure F:
+    Graduation Booklets
+    Annexure G:
+    Auditor’s report on programmes
+    Annexure H:
+    SAQA report on programmes
+    Annexure I1:
+    Termination of agreement with other
+    institutions
+    Annexure I2:
+    Entering into a new agreement
+    Annexure I3:
+    Amendments to existing agreements
+    Annexure J:
+    Compliance with the requirements of
+    the HEQC
+    Annexure K:
+    Compliance with the regulations
+    relating to the health and safety of
+    persons37
+
+    REQUIRED
+    INFORMATION
+    SUBMITTED
+    YES / NO
+    INSTITUTION’
+    S COMMENTS
+    FOR OFFICE
+    USE ONLY
+    Annexure L:
+    Evidence on non-discrimination on the
+    basis of race
+    Annexure M:
+    Proof of maintenance of financial
+    surety or guarantee
+    Annexure N:
+    Audited annual financial statements
+    Annexure O:
+    Record of academic achievement
+    Annexure P:
+    Issuance of transcripts of academic
+    records
+    Annexure Q:
+    Issuance of certificates
+    Annexure R:
+    The National Learner’s Records
+    Database (NLRD)
+    Annexure S:
+    Sample copy of an enrolment and
+    application form
+    Annexure T:
+    Institutional prospectus, calendar and
+    brochure
+    Annexure U:
+    Official documents, marketing and
+    advertising material
+    Annexure V:
+    Register of students’ complains and
+    grievances
+    Annexure W:
+    Evidence in respect of the continued
+    fulfilment of the conditions
+    of registration
+    Annexure X:
+    Maintenance of the risk analysis and
+    management strategy
+    Annexure Y:
+    Tax Clearance Certificate
+    Annexure Z:
+    Premises not listed on re
+
+    On Fri, Feb 9, 2024 at 11:22 AM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+        Welcome to Learner Profiler for Central Johannesburg TVET College
+
+        Inbox
+
+        https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+        Learner Profiler <noreply@learnerprofiler.com>
+        	
+
+        Jan 10, 2024, 7:41 PM
+
+        	
+
+
+        	
+        	
+        	
+
+        to me
+
+        https://mail.google.com/mail/u/0/images/cleardot.gif
+
+        Dear Tshingombe Tshitadi,
+
+        Welcome to Learner Profiler for Central Johannesburg TVET College. Thank you for registering.
+
+        To use the system login here with the details given during your registration.
+
+        Access URL: https://learnerprofiler.com/
+        Client Code: cjc18stl
+        Email/Username: tshingombefiston@gmail.com
+
+        In case of forgetting the password it can be recovered by going here.
+
+        Have you applied for a government bursary? For NSFAS application, please click here.
+
+        PLEASE NOTE THAT THIS IS AN AUTOMATED SYSTEM AND YOU SHOULD NOT WRITE TO THIS EMAIL ADDRESS. IF YOU HAVE A QUESTION, PLEASE CONTACT YOUR INSTITUTION SUPPORT TEAM.
+
+        Thanks,
+
+        Learner Profiler
+
+        11
+
+        https://lh3.googleusercontent.com/a/default-user=s40-p
+
+        Mail Delivery Subsystem
+        	
+        	
+
+        Jan 14, 2024, 2:19 PM
+
+        Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+
+        https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+        Mabasa, Thembani <Mabasa.T@dhet.gov.za>
+        	
+
+        AttachmentsJan 19, 2024, 10:03 AM
+
+
+        	
+
+        to me
+
+        https://mail.google.com/mail/u/0/images/cleardot.gif
+
+        Good day
+
+         
+
+        We received your placement test results from the Central Johannesburg TVET College system. The test recommends that you reconsider your qualification choices and look at short skills programmes.
+
+         
+
+        TVET Colleges offers skills programmes that you can consider as alternative qualification to gain skills. The skills can help you gain employment or to be self employed.
+
+         
+
+        Please ask at the college about their skills programmes and apply for admission.
+
+         
+
+        Best Regards
+
+        Mabasa T
+
+        DHET Career Development Services
+
+         
+
+         
+
+         
+
+         
+
+        From: tshingombe fiston <tshingombefiston@gmail.com>
+        Sent: Thursday, January 11, 2024 12:24 PM
+        To: Learner Profiler <noreply@learnerprofiler.com>; info@nsfas.org.za <info@nsfas.org.za>; modiba.d@dhet.co.za <modiba.d@dhet.co.za>; callcentre@dhet.gov <callcentre@dhet.gov>; CareerHelp <CareerHelp@dhet.gov.za>
+        Subject: Re: Welcome to Learner Profiler for Central Johannesburg TVET College
+
+         
+
+        	
+
+        You don't often get email from tshingombefiston@gmail.com. Learn why this is important
+        	
+
+         
+
+         
+
+        <a href="https://lear
+
+        ...
+
+        Ticket #Z1RNQ: Career Choice
+
+        Inbox
+
+        9160256+Z1RNQ@tickets.livechatinc.com
+        	
+
+        Thu, Jan 11, 3:30 PM
+
+        	
+
+
+        	
+        	
+        	
+
+        to me
+
+        https://mail.google.com/mail/u/0/images/cleardot.gif
+
+         
+
+        Your ticket has been created.
+
+         
+
+         
+
+         
+        	
+
+        https://ci3.googleusercontent.com/meips/ADKq_NbnB5N5oJ9HaoWiSyayhK_QIXhUeKUqr3-BcMiBq615lq2HqUfDSPPsYoHDLD4icRI-xnQeAZcz3cpr5k_FoSeFp92G-W0Dv6OYKoJgPf5YFgiwl7pO6tOXqIx8CztaKvTzneBPcQ=s0-d-e1-ft#https://cdn.livechat-files.com/api/file/lc/main/default/logo/sz2tt7jpJ6VJwBo.pngCareer Choice
+        	
+
+         
+
+         
+
+        	
+        	
+
+         
+
+         
+
+         
+
+         
+        	
+
+        tshingombe
+
+         
+        	
+
+        Thu, 01/11/24 1:29 pm
+        	
+        	
+        	
+        	
+
+         
+        	
+        	
+        	
+
+         
+        	
+
+        Chat transcript:
+        ----------
+        Name: tshingombe
+        Contact number: 0725298946
+        E-mail: tshingombefiston@gmail.com
+        Gender Male
+        Are you a Student
+        ----------
+        Harriet Magolego (Thu, 1/11/2024, 01:40:55 pm Africa/Johannesburg)
+        Welcome to the Career Development Services LiveChat. How can we help you today?
+
+        tshingombe (Thu, 1/11/2024, 01:42:05 pm)
+        hi
+        	
+        	
+        	
+        	
+
+         
+        	
+        	
+        	
+
+
+
+
+
+        	
+
+        Chat now 💬
+        	
+        	
+
+        Powered by HelpDesk
+        	
+
+
+         
+
+        https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+        9160256+Z1RNQ@tickets.livechatinc.com
+        	
+
+        Thu, Jan 11, 3:30 PM
+
+
+        	
+
+        to me
+
+        https://mail.google.com/mail/u/0/images/cleardot.gif
+
+         
+
+        Your ticket is now solved!
+
+         
+
+         
+
+         
+        	
+
+        https://ci3.googleusercontent.com/meips/ADKq_NbnB5N5oJ9HaoWiSyayhK_QIXhUeKUqr3-BcMiBq615lq2HqUfDSPPsYoHDLD4icRI-xnQeAZcz3cpr5k_FoSeFp92G-W0Dv6OYKoJgPf5YFgiwl7pO6tOXqIx8CztaKvTzneBPcQ=s0-d-e1-ft#https://cdn.livechat-files.com/api/file/lc/main/default/logo/sz2tt7jpJ6VJwBo.pngCareer Choice
+        	
+
+         
+
+         
+
+        	
+        	
+
+         
+
+         
+
+         
+
+         
+        	
+
+        https://ci3.googleusercontent.com/meips/ADKq_NZS1RpA6TReN91QZ3swYH9CUnUl2U9rXq0RTyeNa472QsS95vaHahav-g3SNpEjpLJw0UlRh5e2NFDYqbOTI3vlH01cMxSrWoFUc6HEEBiBymZ1Wdn0uKe1cccD0NJXHtDJyzBSBiZ6eaG4CVRAKfTgjzVc8yeg12RC=s0-d-e1-ft#https://cdn.livechat-static.com/api/file/lc/img/default/avatars/ab5b0666feffd67600206cd519fd77ea.jpg
+        	
+
+         
+        	
+
+        Harriet Magolego
+
+         
+        	
+
+        Thu, 01/11/24 1:30 pm
+        	
+        	
+        	
+        	
+
+         
+        	
+        	
+        	
+
+         
+        	
+
+        Good day Tshingombe
+
+        Thank you for contacting the Career Development Services (CDS): Helpline.
+        Please note that CDS offers information and advice on career and educational matters.
+        The email is a chat follow-up which was not concluded but acknowledged. We apologise for the late response. Your profile indicates that you are a student. I wanted to make a follow-up to understand how you could be assisted. however, I have shared information regarding subject choice and career choice, Post school institutions and financial assistance.
+        Would appreciate if you could share with me more careers that you would like to know more about or that you would like to pursue, while doing that, please address the follow:
+        The grade your currently doing;
+        Your subject choice and;
+        Your academic performance.
+
+        Please note that choosing career is an important step which may determine how your life will be like in future. It is also important that you should take time to know yourself better in order to make an informed career choice. The process of making an informed career choice begins with creating your career vision, therefore it is a lifelong journey. There are some important factors you should consider when making a career choice. That is your interests, strengths and abilities, values and personality, just to name a few.
+
+        It is therefore critical that you have the right information about the career that you are interested in. In addition, you need to think about the subjects you enjoy doing the most and consider your academic performance and achievements in your subjects.
+
+        You should know what you enjoy doing and what careers appeal to you. Please consider completing an interest questionnaire which will assist or direct you to the specific fields that are more suitable for you: http://ncap.careerhelp.org.za/login?ReturnUrl=%2fquestionnaire
+        Note that you will need to register as a user first and then continue with the exercise. Click on “Not Registered” to register.
+        The following links have more information on careers linking them to specific subjects as well exercises that you can take to assist direct your choices effectively:
+        • NCAP (Careers categorised in career/ subject field fields): http://ncap.careerhelp.org.za/Subject/StartWizard
+        • NCAP: http://ncap.careerhelp.org.za/Subject/Index
+        • NCAP Subjects linked to career fields: http://ncap.careerhelp.org.za/Subject/StartWizard
+        • Pace Career: http://www.pacecareers.com/resources/making%20subject%20choices.pdf
+        • Go Study: https://www.gostudy.net/img/author/326fdda6-55bf-4c1e-9c79-ded669886033/medium/subject-choice-project-for-grade-9.pdf?id=1b5f2681-cc09-4dab-8419-c5532852add2
+        • CareerPrep: http://careerprep.co.za/subjects/
+
+        Make sure that you are aware of all the post-school options available to you and how you can access them:
+
+        List of universities in South Africa, please check the minimum admission requirements form university prospectus or information booklet (Please check the closing dates as most universities will be closing around September /October):
+
+        http://www.dhet.gov.za/SiteAssets/New%20site%20Documents/Universities%20in%20South%20Africa1.pdf
+
+        Please find a list of TVET Colleges and check their courses, I would really encourage you check the link as you will be able to pursue you studies at the College with low results in Mathematics:
+
+        http://www.dhet.gov.za/SitePages/Inst_TVET1.aspx
+
+        Please check the following websites links for possible funding opportunities:
+        Please note that NSFAS will reopen soon for 2024 academic year.
+        http://www.nsfas.org.za/content/
+        Other bursaries:
+        https://www.careerhelp.org.za/funding
+        https://www.gostudy.net/bursaries
+
+        Please find a list of TVET Colleges and check their courses.
+
+        http://www.dhet.gov.za/SitePages/Inst_TVET1.aspx
+
+        Kind regards
+        HM Magolego
+        Career Development & Open Learning
+        Email: CareerHelp@dhet.gov.za
+        TEL: 086 999 0123
+        123 Francis Baard Street
+        Private Bag X174
+        Pretoria 0001
+        	
+        	
+        	
+        	
+
+         
+        	
+        	
+        	
+
+         
+
+         
+
+         
+
+         
+        	
+
+        tshingombe
+
+         
+        	
+
+        Thu, 01/11/24 1:29 pm
+        	
+        	
+        	
+        	
+
+         
+        	
+        	
+        	
+
+         
+        	
+
+        Chat transcript:
+        ----------
+        Name: tshingombe
+        Contact number: 0725298946
+        E-mail: tshingombefiston@gmail.com
+        Gender Male
+        Are you a Student
+        ----------
+        Harriet Magolego (Thu, 1/11/2024, 01:40:55 pm Africa/Johannesburg)
+        Welcome to the Career Development Services LiveChat. How can we help you today?
+
+        tshingombe (Thu, 1/11/2024, 01:42:05 pm)
+        	
+        	
+        	
+
+         
+
+        On Fri, Feb 9, 2024 at 10:36 AM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+
+
+            On Tue, Dec 26, 2023 at 12:25 PM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+                Application 
+                Ref :Applications letter   number : 2023/1226
+                ____________________________________
+                ADRESS:PRIVATE BAG X 174 ,PRETORIA 0001
+                123 FRANCIS BAARD STREET PRETORIA
+                TEL:0123235618
+                ______________________________________
+                ENQUIRY NUMBER: 
+                DHET : 
+                DOCKET NUMBER  :2023/1226
+                INFORMATION MANAGEMENT SYSTEM 
+                - INSTITUT COLLEGE NAME :ST PEACE COLLEGE
+                -ID: NUMBER: TIRC0G000910610
+                -REGISTRATION NUMBER: STUDENT  -CO70040101099
+                -SARS VAT NUMBER: 923228238
+                -MERSETA : 17_QA/ACC/1311/17
+                -SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382.
+                -email adress: tshingombekb@gmail.com
+                -Alternate email address: tshingombefiston@gmail.com
+
+
+                ________________________________________
+                APPEAL DECISSION  RESULT RELEASE:
+                APPLICATION NUMBER:
+                Saqa: institut foreign .saqa transcription meeting  71638 dr congo requirements  grasuate award diploma nqf  .high certificate no meeting .leave school .expended assessments  .exam  d etat diploma .certificate  professionek .certificate informatics mathematicsvoffics  ; result outcom  primaryb status registration saqa asset 09121 .saqa institut 30_ 39 nc assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+                 .n diplomat 
+                -Qualification title national N diplomat  engineering. 
+                -nqf level:6 .
+                -date submitted to dhet :1105/2023
+                -date  process .
+                DHET 
+                -Timebtable /50111002 
+                -N1:engineering studie
+                -ID:2004007064381
+                -ID:2100002023812
+
+                ________________________________________
+                Dear .mr minister of education dhet and deputy member of dhet .tvet college examination directorat and authority competencies. Governments  president 
+                I' mr tshingombe tshitadi ;acknowledge student st peace college candidat examination career student follow course in duty of nated in rsa 2019 to 2024 ,  i 'm appear  to your department goverment institution  for allegation view no result of statement id candidat engineering  n1.,n2, n,3,n4  ,n3 and n diplomat  saqa outcom in irregularity  final n5.n6  /nqf 6.
+                 examination national examination was not delivery in the time  external assessments  commited irregularities. 
+
+                1.my motivation and disciplinairy assessment submitted my portofolio on line portal dhet release resultat statement and finalized award diplomat by examination commited irregularityb november invalide subject n3 trade theory electricakbtranscript  the result of assessment was note release reson irregularity n3.subject n4 .subject fail druip result february 2022 .directorat assessment  trascript material .statement affidavitsubmitted st peace college registrar shalom technical and afric instirut college  no result outcom .after 15 days was result scaling n1.n2.n3but statement didint come out not print out by registrations resonement inconveniant. Arbitrary irregularity on february i submitted topics saqa qcto dhet email result of saqa documentation; filing dbe dhet .the commited was under investigation  soon to finalyse .
+
+                2. I received to dhet committed assessment  examinations  irregularities the retain
+                , invalide subject 23 february 2022   the time table of n3 subject admnistration exam with those subject trade . electrical trade theory .4 subject november 2023 examination  rhe result statement  for last examination was not print outcome  n1.n2 submited n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations november  suspension is 11 month for irregularity .follow tvet guideline assessment. Exam over the date insurence body frameworks qualification and labour department  uif coud claim no outcom in career portal was outcom granted  national fund skill for extra subject topics irregularity rwiten qcto practical was not granted  scope portal research qcto .
+                3.allegation result statement  retain dhet .;saqa n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma icass years college in my portofolio submitted on line marked exam n5.n6.subject additional assessment information  by institution isat icass.
+                Ref outcome saqa result
+                16 jan 2023 on line marischen masoga  send submission number  foreing instirut inquirie 9370.
+                Foreign institutions inquiries 6594
+                Section 29(a)policy criteria saqa nqf amanded march 2017 institut ...framework nqf  foreign award must meet  for recognise.
+                Saqa accepted only qualifications  official examination body country ..external examination based , 26 july 2022.
+                4.allegation to qcto retain on ; saturday22 january 2022. ; with regard  n certificate  direction  dhet education training (for n4_n6 n diploma or umalusi n3 can not assist with qcto issued  
+                Sat ..10 march 203 qxto .certificate@qcto.org.za  answer soc please note that the qcto does not issue any of results 
+                -lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit  they will be able to rspond to accorlingly regardc
+                Qcto  khuluvhe  labour market intelligences  lmi esteemed stakeholder  21 aug 2023 was not grante
+
+                - i receiving   Allegation to saqa retain on.10 march 2023  procedure for evaluatiin  pro forma invoice .copy id passport.copy final award graduation certificate. Copy of completed transcript mark sheet academic record.proof payment   if not meetings requirements can resubmitted again.non compliant; 27 july 2021 application above doe s not meet saqa 
+                Final award school diploma degre certificate in 48h .
+                -that my requested letter to the authority minister for my result statement certificat  over the date review n diploma 24 month.18 month nated examination  to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurence investigation result center assessment  outcome  years icass total tvet  for my instirut st peace college institu  and externsl certificate n1.n3  afric training institut and shalom technical  collection  print out was not in my application for diploma response from dhet  submitted to resolve conflic assessment examination. 
+
+                - your sincerly .
+                Sign :Tshingombe Tshitadi 
+                _________________________________
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+		zaire apeal statement Appeal statement result.docx
+31K View as HTML Download
 
 
 ka
